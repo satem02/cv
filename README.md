@@ -1,2 +1,2 @@
 # cv
-[SAFAK_TEMEL_CV.pdf](https://github.com/satem02/cv/files/7372432/SAFAK_TEMEL_CV.pdf)
+[Safak_Temel.pdf](https://github.com/satem02/cv/files/8212649/Safak_Temel.pdf)
